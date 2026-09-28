@@ -1,1 +1,0 @@
-# tpk_pusuk_lestari
